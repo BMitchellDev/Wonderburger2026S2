@@ -1,3 +1,4 @@
 Top Bun
-lettuce    //Protects the bottom bun from moisture
+Lettuce (Angelo)
+lettuce  (Khaisyn)  //Protects the bottom bun from moisture
 Bottom Bun
